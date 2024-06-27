@@ -2,7 +2,7 @@
 - 👀 I’m interested in veterinary science
 - 🌱 I’m currently learning coding
 - 💞️ I’m looking to collaborate on projects
-- 📫 How to reach me email
+- 📫 How to reach me email2manya07@gmail.com
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I am a huge animal lover.
 
